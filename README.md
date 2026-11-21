@@ -1,2 +1,0 @@
-# ryan-nathanigop
-Stock Tower
